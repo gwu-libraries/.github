@@ -1,1 +1,1 @@
-## Welcome to The Geroge Washington University Libraries Github orgainization! 👋
+## Welcome to The George Washington University Libraries Github orgainization! 👋
